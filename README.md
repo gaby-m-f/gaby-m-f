@@ -1,3 +1,3 @@
-seupaidcalcinha👋
+👋
 
 
